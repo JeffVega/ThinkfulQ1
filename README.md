@@ -1,0 +1,3 @@
+# ThinkfulQ1
+Thinkful Questions
+ When it comes to communication, I want to see who I'm talking to, get more information out of them, I want to choose my words wisely. The main focus is to get my point across with a smooth transition. Before getting my point across I have to take in my audience feedback. When reading this unit I saw a chapter on feedback, I felt that it had significant amounts of advice on showing how to give receive and deliver in a professional manner. In a field like this, I'm looking forward to advancing my skills and knowledge on giving and receiving feedback. When it comes to communication, I go after my audience and make sure that my point gets across, and when I do receive feedback, I take in what the audience has said.
